@@ -1,4 +1,6 @@
 Sun is shining
-The weather is sweet year
+The wheather is sweet year
 Make you wanna move
-your dancing feet
+Your dancing feet
+
+Or not?
