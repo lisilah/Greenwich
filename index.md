@@ -9,5 +9,3 @@ To the rescue, here I am
 Want you to know, y'all, where I stand
 
 Or not?
-
-Once again!
