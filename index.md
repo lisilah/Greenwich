@@ -8,4 +8,4 @@ Your dancing feet
 To the rescue, here I am
 Want you to know, y'all, where I stand
 
-Or not?
+Or isn't it?
